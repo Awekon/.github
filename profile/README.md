@@ -58,7 +58,7 @@ To ensure a positive and respectful environment for all members, we ask that you
 Need help? Our support team is here for you:
 
 - **Help Center**: Visit our Help Center for FAQs and tutorials.
-- **Contact Us**: Reach out to our support team at [support@awekon.com](mailto:support@awekon.com) for personalized assistance.
+- **Contact Us**: Reach out to our support team at [Mail](mailto:thenikhilkumar1@gmail.com) for personalized assistance.
 
 ## Join Awekon Today!
 
