@@ -64,4 +64,4 @@ Need help? Our support team is here for you:
 
 Dive into the world of 3D storytelling and virtual reality with Awekon. Whether you’re creating or experiencing content, we’re excited to have you as part of our community.
 
-Join here👉🏻 [Awekon/Slack](https://www.awekon.com) and start your journey today!
+Join here👉🏻 [Awekon/Slack](https://join.slack.com/t/awekon/shared_invite/zt-2jdjg0jzb-kYRJAv1ynzbqJKQWrkGtag) and start your journey today!
